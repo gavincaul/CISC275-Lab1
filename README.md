@@ -45,7 +45,7 @@ If you don't finish this during your scheduled lab time, that's ok! But we encou
 Edit for Lab Section 020L:
 - 
 Hey yall here is my edit
-
+my name is walter hartwell white.
 My name is walter hartwell white.
 -
 Hello this is my edit
